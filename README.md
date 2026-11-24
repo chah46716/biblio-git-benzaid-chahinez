@@ -1,1 +1,1 @@
-verification distante
+verification distante 
